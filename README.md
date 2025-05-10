@@ -1,1 +1,0 @@
-# GuadalupeGP.github.io
